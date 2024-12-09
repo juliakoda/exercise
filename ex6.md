@@ -1,0 +1,1 @@
+A sentence to the ex 6. 
